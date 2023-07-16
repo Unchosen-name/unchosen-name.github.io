@@ -52,9 +52,9 @@ On the second day, I walked around Old Town Alghero and its newer urban expansio
 
 Later I thought, maybe the amazement I felt after seeing the multitude of pasta types is shared by the Italians when they see the multitude of rice types...
 
-## Day 2 - Il Vecchio Mulino
+## Day 2 - Al Vecchio Mulino
 
-I decided to treat myself nicely after a whole day of work. My friend suggested another local restaurant called Il Vecchio Mulino, located in the heart of Old Town Alghero. 
+I decided to treat myself nicely after a whole day of work. My friend suggested another local restaurant called Al Vecchio Mulino, located in the heart of Old Town Alghero. 
 
 ![Il Vecchio Mulino](/assets/Food/Alghero/Il_Vecchio_Mulino.jpeg)
 
@@ -70,17 +70,51 @@ Soon after we sat down, we were served a bread basket as starters.
 
 ![Il Vecchio Mulino Bread Basket](/assets/Food/Alghero/IVM_Bread.jpeg)
 
-Italian bread are mostly hard and chewy, with a slight hint of sour if you chew long enough. THey are usually served with olive oil and balsamic vinegar. Here, we were also given a cup of mozzerally cheese. The larger square at the back of the basket is very thin and crispy. I quickly became addicted to it and devoured every piece at later dinners. 
+Italian bread are mostly hard and chewy, with a slight hint of sour if you chew long enough. THey are usually served with olive oil and balsamic vinegar. Here, we were also given a cup of mozzerally cheese. The larger square at the back of the basket is Sardinian flatbraed, very thin and crispy. I quickly became addicted to it and devoured every piece at later dinners. 
 
-After trying the pizza on day 1, I wanted to try their pasta. I chose the *Pasti Di Vongole*, pasta with clam. The 
+After trying the pizza on day 1, I wanted to try their pasta. I chose the *Spaghetti alle Vongole*, spaghetti with clams. There were 15 fresh and perfectly cooked clams in the dish. Personally, I felt the dish was a bit heavily seasoned. The salty taste of the pasta was too overwhelming. With that being said, still a very well made dish. 
 
 ![Il Vecchio Mulino Vongole](/assets/Food/Alghero/IVM_Vongole.jpeg)
 ---
 ![Il Vecchio Mulino Vongole 2](/assets/Food/Alghero/IVM_Vongole_2.jpeg)
 
+---
+
+## Day 3 - Azienda Agrituristica Sa Mandra
+
+I spend the third dinner of my trip at *Azienda Agrituristica Sa Mandra*, which means "Sa Mandra Farmhouse". As the name suggests, this restaurant is situated in a farm, with crops and herbs growing on the sides. 
+
+![Azienda Agrituristica Sa Mandra Herbs](/assets/Food/Alghero/AASM_Herbs.jpeg)
+---
+![Azienda Agrituristica Sa Mandra View](/assets/Food/Alghero/AASM_View_2.jpeg)
+---
+![Azienda Agrituristica Sa Mandra View 2](/assets/Food/Alghero/AASM_View_3.jpeg)
+
+The restaurant is split into an outdoor section and an indoor section. Below is the outdoor section.
+
+![Azienda Agrituristica Sa Mandra Outdoor](/assets/Food/Alghero/AASM_View.jpeg)
+
+I was seated in the indoor section. The table welcomed us with platters of cheese, Italian ham, and bread. 
+
+![Azienda Agrituristica Sa Mandra Cheese](/assets/Food/Alghero/AASM_Cheese.jpeg)
+---
+![Azienda Agrituristica Sa Mandra Ham](/assets/Food/Alghero/AASM_Ham.jpeg)
+
+The appetizers were great. I was busy talking so I didn't finish the plate of cheese next to me. When the waitress came by to collect the plates, she asked me, "No cheese? You don't like it?" Her tone made us at the table felt like she was offended. We apologized and devoured it. Hopefully she wasn't upset :no_mouth:.
+
+The first dish served after the appetizers was Fregula. Fregula is a type of pasta local to Sardinia, and is not commonly seen elsewhere. Similar to couscous, Fregula is in the shape of a sphere roughly 2-3mm in diameter. It is created with semolina dough and toasted in oven. We were served a lamb Fregula, with carrots and other vegetables also cut into small spheres. The pasta was nicely cooked, not chewy at all. The lamb soft, and the vegetables cooked to the same degree as the pasta and was nearly impossible to differentiate. 
+
+![Azienda Agrituristica Sa Mandra Fregula](/assets/Food/Alghero/AASM_Fregula.jpeg)
+
+After the Fregula, we were served plates of Ravioli. The powder like garnish is shredded Sardinian flatbread. It adds a cripsy texture to the ravioli when it enters the mouth. 
+
+![Azienda Agrituristica Sa Mandra Ravioli](/assets/Food/Alghero/AASM_Ravioli.jpeg)
 
 
-Azienda Agrituristica Sa Mandra
+
+
+
+
 
 
 
